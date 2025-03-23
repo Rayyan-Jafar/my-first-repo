@@ -1,4 +1,3 @@
-```markdown
 # MUHAMMAD RAYYAN JAFAR
 
 ![Picture](C:\Users\HP\Downloads\d4f3635c-1c40-49c4-87e7-a56765a4d492)
